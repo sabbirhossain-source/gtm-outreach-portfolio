@@ -80,5 +80,5 @@ Seeking Manager-level roles in GTM, Outreach, Growth, or Revenue Operations.
 
 ## Contact
 - LinkedIn: https://www.linkedin.com/in/sabbirho/
-- Email: your.email@example.com
+- Email: hossainsabbir447@gmail.com
 - Open to Manager-level GTM, Outreach, Growth, and RevOps roles
